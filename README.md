@@ -1,2 +1,7 @@
 # hello-world
-nani
+OMAE WA MO SHINDEIRU
+.
+.
+.
+nani?!
+*explodes*
